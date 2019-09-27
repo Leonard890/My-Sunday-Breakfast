@@ -7,9 +7,13 @@ For one Saturday per month, I typically eat a taco with different variations of 
 ![GitHub Logo](https://www.vnutritionandwellness.com/wp-content/uploads/2016/06/walnut-meat-tacos1-1.jpg)
 
 Prep Time: 10 mins
+
 Cook: 10 mins
+
 Total: 20 mins
+
 Servings: 1 serving
+
 Total Cost: $10.00
 
 Ingredients
