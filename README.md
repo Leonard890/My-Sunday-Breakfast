@@ -13,7 +13,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - Servings: 1 serving
  - Total Cost: Approximately $15.00-25.00
 
-## Ingredients
+# Ingredient
 
 **WALNUT TACOS:**
 
