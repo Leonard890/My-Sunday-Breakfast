@@ -9,10 +9,9 @@ For one Saturday per month, I typically eat a taco with different variations of 
 ![GitHub Logo](https://www.vnutritionandwellness.com/wp-content/uploads/2016/06/walnut-meat-tacos1-1.jpg)
 
  - Prep Time: 10 mins
- - Cook: 10 mins
- - Total: 20 mins
+ - Total Time: 10 mins
  - Servings: 1 serving
- - Total Cost: Approximately $15.00-25.00
+ - Total Cost: Approximately $10.00-20.00
 
 # Ingredients
 
@@ -42,16 +41,14 @@ For one Saturday per month, I typically eat a taco with different variations of 
 
 # Directions
 
-1. Go to a market to buy taco shells and all supplies needed.
-2. Add walnuts to a food processor and process until mixture is kind of "meaty".
-3. Put the [beef chuck](https://www.thespruceeats.com/beef-chuck-primal-cut-995249)
- in the pan and cook it for 5 minutes. 
-4. Put mixture/toppings in bowl and add seasonings and mix. (Examples: onions, red cabbage, cilantro, etc.)
-5. Add the rest of the ingredients (up until tamari) and stir until all of them are blended correctly. (Ingredients: De-shelled walnuts, garlic powder, cumin, chili powder, and tamari.
-6. Fill taco shells with walnut mixture and top with [toppings](https://www.ranker.com/list/taco-toppings-and-ingredients/ranker-food) of choice. (Toppings: onions, red cabbage, cilantro, etc.)
-7. To make [the lime cashew sour cream](http://www.thewholeingredient.com/2015/06/22/cashew-lime-sour-cream/), put all the ingredients in a high-speed blender and blend until smooth. Add more water if needed to get a sour cream consistency.
-8. Put the completed tacos in the oven for 5 minutes. 
-9. Top tacos with sour cream and enjoy!
+1. Go to a market to buy at least 5 taco shells (Experimenting with the other taco shells) and all of the supplies needed. (Ingredients: A Walnut Taco, toppings and the lime cashew sour cream). 
+2. Add the de-shelled walnuts to a food processor and continue the process until the mixture is tender and crunchy.
+3. Put mixture/toppings in bowl and add seasonings and mix. (Examples of Toppings: onions, red cabbage, cilantro, etc.)
+4. Add the rest of the ingredients (up until tamari) and stir until all of them are blended correctly. (Ingredients: De-shelled walnuts, garlic powder, cumin, chili powder, and tamari).
+5. Fill the taco shell with walnut mixture.
+6. To make [the lime cashew sour cream](http://www.thewholeingredient.com/2015/06/22/cashew-lime-sour-cream/), put all the ingredients in a high-speed blender and blend until smooth. Add more water if needed to get a sour cream consistency. (Ingredients: Soaked Cashews, Water, Lime Juice, Apple Cider Vinegar, and Salt)
+7. Put the lime cashew sour cream on the taco with all the [toppings](https://www.ranker.com/list/taco-toppings-and-ingredients/ranker-food). (Examples of Toppings: onions, red cabbage, cilantro, etc.)
+8. The Walnut Meat Taco with Lime Cashew Cream is finished! Enjoy!
 
 # Recipe Notes:
 
