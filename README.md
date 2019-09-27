@@ -34,7 +34,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
 
 **LIME CASHEW SOUR CREAM:** 
 
- - 0.17 Cup [Cashews soaked overnight (or soaked at least 10 minutes in boiling water)](https://nouveauraw.com/raw-techniques/soaking-nuts-seeds-and-grains/cashews-soaked-drying/): $2.00
+ - 0.17 Cup [Cashews soaked overnight (or soaked at least 10 minutes in boiling water)](https://nuts.com/nuts/cashews/roasted-and-salted.html?msclkid=dacf8a1cb1431bcb502dd792dfc0d7f6&utm_source=bing&utm_medium=cpc&utm_campaign=BPA%20-%20General%20-%20Cashews&utm_term=4580771606031540&utm_content=BPA%20General%20-%20Nuts.com%7CCashews%7C10-20%7CC:50): $2.00
  - 0.06-0.08 cup of [Water](https://science.howstuffworks.com/environmental/earth/geophysics/h2o.htm): $0.90
  - 0.33 Tb [Lime Juice](https://www.amazon.com/Santa-Cruz-Organic-Juice-Ounces/dp/B000VHGMX6): $1.50
  - 0.17 TB [Apple Cider Vinegar](https://www.healthline.com/nutrition/6-proven-health-benefits-of-apple-cider-vinegar): $1.40
