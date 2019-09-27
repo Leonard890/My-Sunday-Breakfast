@@ -44,11 +44,12 @@ For one Saturday per month, I typically eat a taco with different variations of 
 
 1.  Go to a market to buy taco shells and all supplies needed.
 2. Add walnuts to a food processor and process until mixture is kind of "meaty".
-3. Get chuck beef in the pan and cook it for 5 minutes. 
+3. Put the [beef chuck](https://www.thespruceeats.com/beef-chuck-primal-cut-995249)
+ in the pan and cook it for 5 minutes. 
 4. Put mixture in bowl and add seasonings and mix.
 5. Add rest of the ingredients (up until tamari) and stir until incorporated
-6. Fill taco shells with walnut mixture and top with toppings of choice.
-7. To make the lime cashew sour cream put all the ingredients in a high-speed blender and blend until smooth. Add more water if needed to get a sour cream consistency.
+6. Fill taco shells with walnut mixture and top with [toppings](https://www.ranker.com/list/taco-toppings-and-ingredients/ranker-food) of choice.
+7. To make [the lime cashew sour cream](http://www.thewholeingredient.com/2015/06/22/cashew-lime-sour-cream/) put all the ingredients in a high-speed blender and blend until smooth. Add more water if needed to get a sour cream consistency.
 8. Put the completed tacos in the oven for 5 minutes. 
 9. Top tacos with sour cream and enjoy!
 
