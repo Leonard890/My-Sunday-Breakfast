@@ -19,7 +19,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
 **WALNUT TACOS:**
 
  - 0.25 cups [de-shelled walnuts:](https://www.google.com/shopping/product/2416399011238086562?q=de-shelled%20walnuts:&safe=strict&rlz=1C1CHBF_enUS760US760&sxsrf=ACYBGNSSMXsehCag49y7mUPOL6LnZ_CZbg:1569592641761&biw=2560&bih=1329&prds=epd:3954701486283304678,prmr:3&sa=X&ved=0ahUKEwiH1P7ClPHkAhVHuVkKHRZvA0cQ8wIIzAQ) $0.25
- - 0.17 tsp [garlic powder](https://www.wideopeneats.com/how-does-one-garlic-clove-compare-to-a-tablespoon-of-garlic-powder/):  $ 1.00
+ - 0.17 tsp [Garlic Powder](https://www.vitacart.com/kirkland-granulated-california-garlic.html?gclid=Cj0KCQjw5rbsBRCFARIsAGEYRwchcwVtxnAGI9Ps45yAh01ytN8bj0xhplQQIKg0Z4mdmoYff56pYa4aAofDEALw_wcB): $ 1.00
  - 0.08 tsp [cumin](https://www.thespruceeats.com/what-is-cumin-995638): $ 2.00
  - 0.08 tsp [chili powder:](https://www.allrecipes.com/recipe/237172/chili-powder/): $0.60
  - 0.17 Tb [tamari:](https://www.amazon.com/Tamari-Sauce-Wheat-Free-Organic/dp/B0046IIXTW): $0.70
