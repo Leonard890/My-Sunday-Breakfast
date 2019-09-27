@@ -13,7 +13,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - Servings: 1 serving
  - Total Cost: Approximately $15.00-25.00
 
-# Ingredient
+# Ingredients
 
 **WALNUT TACOS:**
 
@@ -39,7 +39,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - 0.17 TB [apple cider vinegar](https://www.healthline.com/nutrition/6-proven-health-benefits-of-apple-cider-vinegar)
  - [Pinch of salt](https://www.food.com/about/salt-359): $ 0.50
 
-# Direction
+# Directions
 
 1.  Go to a market to buy taco shells and all supplies needed.
 2. Add walnuts to a food processor and process until mixture is kind of "meaty".
