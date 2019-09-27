@@ -25,7 +25,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - 0.17 Tb [Tamari](https://www.amazon.com/Tamari-Sauce-Wheat-Free-Organic/dp/B0046IIXTW): $0.70
  - 1 [Taco Shell](https://www.boxed.com/product/1065/old-el-paso-taco-dinner-kit-3-hard-soft-shell-kits?pf=3&gid=1065&utm_purpose=all&utm_experiment=none&utm_ad_id=84318922749536&msclkid=cc301a39b11e101c5fd047b7d2e29691&utm_source=bing&utm_medium=cpc&utm_campaign=Bing%7CShopping%7CNonBrand%7CLow%7CAll%7CAll&utm_term=4587918425337640&utm_content=1065%20-%20Old%20El%20Paso%20Taco%20Dinner%20Kit): $0.80
 
-**TOPPINGS:**
+**TOPPINGS:** (Optional)
 
  - 0.17 cup [Carrots (chopped)](https://www.webstaurantstore.com/sliced-carrots-10-can/99993214.html?utm_source=bing&utm_medium=cpc&utm_campaign=Shopping%20HP&utm_term=4582764467318230&utm_content=Consumables): $1.80
  - 0.17 cup [Red Cabbage (chopped)](https://www.amazon.com/Davids-Garden-Seeds-Cabbage-Express/dp/B00E3IAGPO/ref=asc_df_B00E3IAGPO/?tag=bingshoppinga-20&linkCode=df0&hvadid=%7Bcreative%7D&hvpos=%7Badposition%7D&hvnetw=o&hvrand=%7Brandom%7D&hvpone=&hvptwo=&hvqmt=e&hvdev=c&hvdvcmdl=%7Bdevicemodel%7D&hvlocint=&hvlocphy=&hvtargid=pla-4583520382113110&psc=1): $ 2.00
