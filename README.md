@@ -22,7 +22,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - 0.17 tsp [Garlic Powder](https://www.vitacart.com/kirkland-granulated-california-garlic.html?gclid=Cj0KCQjw5rbsBRCFARIsAGEYRwchcwVtxnAGI9Ps45yAh01ytN8bj0xhplQQIKg0Z4mdmoYff56pYa4aAofDEALw_wcB): $ 1.00
  - 0.08 tsp [Cumin](https://www.boxed.com/product/6892/mccormick-ground-cumin-14-oz.?pf=3&gid=6892&utm_purpose=all&utm_experiment=none&utm_ad_id=84250223054092&msclkid=5366f387c30e12f2c1d1ae09a2308e85&utm_source=bing&utm_medium=cpc&utm_campaign=Bing%7CShopping%7CNonBrand%7CMid%7CAll%7CAll&utm_term=4587849705868570&utm_content=6892%20-%20McCormick%20Ground%20Cumin): $ 2.00
  - 0.08 tsp [Chili Powder](https://nuts.com/cookingbaking/herbsspices/pepper/chili-powder.html?msclkid=4b88a7adc968128ccc7efa23abc4e0d2&utm_source=bing&utm_medium=cpc&utm_campaign=BPA%20-%20General%20-%20Cooking%20&%20Baking&utm_term=4580153131020138&utm_content=BPA%20General%20-%20Weak%20Item%7CNuts.com%7CCooking%20&%20Baking%7CC:50) : $0.60
- - 0.17 Tb [Tamari:](https://www.amazon.com/Tamari-Sauce-Wheat-Free-Organic/dp/B0046IIXTW): $0.70
+ - 0.17 Tb [Tamari](https://www.amazon.com/Tamari-Sauce-Wheat-Free-Organic/dp/B0046IIXTW): $0.70
  - 1 [Taco shell](https://www.allrecipes.com/recipe/70504/hard-taco-shells/): $0.80
 
 **TOPPINGS:**
