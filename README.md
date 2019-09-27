@@ -64,7 +64,7 @@ Directions:
 
 6. Top tacos with sour cream and enjoy!
 
-Recipe Notes: 
+Recipe Notes: 6 
 
 Nutrition info includes 1 taco shell per taco and 1 TB of cilantro sour cream.
 Sour cream will last in the fridge for about a week.
