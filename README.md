@@ -55,8 +55,11 @@ For one Saturday per month, I typically eat a taco with different variations of 
 Nutrition information includes 1 taco shell per taco and 1 TB of cilantro sour cream.
 Sour cream will last in the fridge for about a week. You can try different variations of toppings during breakfast, lunch or dinner. 
 
-Created By:
 
- - https://www.vnutritionandwellness.com/walnut-meat-tacos/
- 
- 
+## Inspired/Created By:
+
+ - [Walnut Meat Tacos with Lime Cashew Cream](https://www.vnutritionandwellness.com/walnut-meat-tacos/)
+ - [Walnut Tacos](https://www.washingtonpost.com/recipes/walnut-tacos/15504/)
+
+
+
