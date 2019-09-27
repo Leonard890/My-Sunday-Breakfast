@@ -37,8 +37,8 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - 0.17 Cup [Cashews soaked overnight (or soaked at least 10 minutes in boiling water)](https://nuts.com/nuts/cashews/roasted-and-salted.html?msclkid=dacf8a1cb1431bcb502dd792dfc0d7f6&utm_source=bing&utm_medium=cpc&utm_campaign=BPA%20-%20General%20-%20Cashews&utm_term=4580771606031540&utm_content=BPA%20General%20-%20Nuts.com%7CCashews%7C10-20%7CC:50): $2.00
  - 0.06-0.08 cup of [Water](https://science.howstuffworks.com/environmental/earth/geophysics/h2o.htm): $0.90
  - 0.33 Tb [Lime Juice](https://www.amazon.com/Santa-Cruz-Organic-Juice-Ounces/dp/B000VHGMX6): $1.50
- - 0.17 TB [Apple Cider Vinegar](https://www.healthline.com/nutrition/6-proven-health-benefits-of-apple-cider-vinegar): $1.40
- - [Pinch of Salt](https://www.food.com/about/salt-359): $ 0.25
+ - 0.17 TB [Apple Cider Vinegar](https://nuts.com/cookingbaking/oil-and-vinegar/bragg-organic-apple-cider-vinegar.html?msclkid=468ad247c0101a10dc228fc9af85a1df&utm_source=bing&utm_medium=cpc&utm_campaign=BPA%20-%20Brands%20-%20Cooking%20&%20Baking&utm_term=4581183923315488&utm_content=BPA%20Brand%20-%20Weak%20Item%7CNuts.com%7CCooking%20&%20Baking%7CC:70): $1.40
+ - [Pinch of Salt](https://www.webstaurantstore.com/diamond-crystal-3-lb-kosher-salt/999991858.html?utm_source=bing&utm_medium=cpc&utm_campaign=Shopping%20HP&utm_term=4582764467318223&utm_content=Consumables): $ 0.25
 
 # Directions
 
