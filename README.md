@@ -37,7 +37,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - 0.17 Cup [cashews soaked overnight (or soaked at least 2-3 hours in boiling water)](https://nouveauraw.com/raw-techniques/soaking-nuts-seeds-and-grains/cashews-soaked-drying/): $2.00
  - 0.06-0.08 cup [water](https://science.howstuffworks.com/environmental/earth/geophysics/h2o.htm): $0.90
  - 0.33 Tb [lime juice](https://www.amazon.com/Santa-Cruz-Organic-Juice-Ounces/dp/B000VHGMX6): $0.60
- - 0.17 TB [apple cider vinegar](https://www.healthline.com/nutrition/6-proven-health-benefits-of-apple-cider-vinegar)
+ - 0.17 TB [apple cider vinegar](https://www.healthline.com/nutrition/6-proven-health-benefits-of-apple-cider-vinegar): $1.40
  - [Pinch of salt](https://www.food.com/about/salt-359): $ 0.50
 
 # Directions
