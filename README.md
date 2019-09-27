@@ -16,7 +16,7 @@ Servings: 1 serving
 
 Total Cost: $10.00
 
-Ingredients
+## Ingredients
 
 WALNUT TACOS:
 
