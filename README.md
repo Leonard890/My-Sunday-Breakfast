@@ -39,7 +39,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - 0.17 TB [apple cider vinegar](https://www.healthline.com/nutrition/6-proven-health-benefits-of-apple-cider-vinegar)
  - [Pinch of salt](https://www.food.com/about/salt-359): $ 0.50
 
-## Directions:
+# Direction
 
 1.  Go to a market to buy taco shells and all supplies needed.
 2. Add walnuts to a food processor and process until mixture is kind of "meaty".
@@ -51,13 +51,13 @@ For one Saturday per month, I typically eat a taco with different variations of 
 8. Put the completed tacos in the oven for 5 minutes. 
 9. Top tacos with sour cream and enjoy!
 
-## Recipe Notes:
+# Recipe Notes:
 
 Nutrition information includes 1 taco shell per taco and 1 TB of cilantro sour cream.
 Sour cream will last in the fridge for about a week. You can try different variations of toppings during breakfast, lunch or dinner. 
 
 
-## Inspired/Created By:
+# Inspired/Created By:
 
  - [Walnut Meat Tacos with Lime Cashew Cream](https://www.vnutritionandwellness.com/walnut-meat-tacos/)
  - [Walnut Tacos](https://www.washingtonpost.com/recipes/walnut-tacos/15504/)
