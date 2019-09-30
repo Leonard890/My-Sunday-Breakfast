@@ -37,7 +37,7 @@ For one Saturday per month, I typically eat a taco with different variations of 
  - 0.06-0.08 cup of [Water](https://www.toolboxsupply.com/products/nestle-pure-life-12243706-bottle-drinking-water-0-5-liter-24-pack?utm_source=bing&utm_medium=cpc&utm_campaign=TBS_Shopping_3&utm_term=4574861725206165&utm_content=Ad%20group%20#1): $0.90
  - 0.33 Tb [Lime Juice](https://www.amazon.com/Santa-Cruz-Organic-Juice-Ounces/dp/B000VHGMX6): $1.50
  - 0.17 TB [Apple Cider Vinegar](https://nuts.com/cookingbaking/oil-and-vinegar/bragg-organic-apple-cider-vinegar.html?msclkid=468ad247c0101a10dc228fc9af85a1df&utm_source=bing&utm_medium=cpc&utm_campaign=BPA%20-%20Brands%20-%20Cooking%20&%20Baking&utm_term=4581183923315488&utm_content=BPA%20Brand%20-%20Weak%20Item%7CNuts.com%7CCooking%20&%20Baking%7CC:70): $1.40
- - [Pinch of Salt](https://www.webstaurantstore.com/diamond-crystal-3-lb-kosher-salt/999991858.html?utm_source=bing&utm_medium=cpc&utm_campaign=Shopping%20HP&utm_term=4582764467318223&utm_content=Consumables): $ 0.25
+ - [Pinch of Salt](https://www.webstaurantstore.com/diamond-crystal-3-lb-kosher-salt/999991858.html?utm_source=bing&utm_medium=cpc&utm_campaign=Shopping%20HP&utm_term=4582764467318223&utm_content=Consumables): $0.25
 
 # Directions
 
